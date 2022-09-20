@@ -1,4 +1,4 @@
-# [Név]
+# [Süveges Zoltán]
 
 ## Hogyan kezdj neki?
 
